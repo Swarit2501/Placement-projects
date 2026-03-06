@@ -33,3 +33,6 @@ An AI system that:
 Build strong, explainable projects and be technically prepared for placements.
 
 GOD BLESS, WE GOT THIS
+
+hi we gonna ace this 
+LOCK IN PERIOD
